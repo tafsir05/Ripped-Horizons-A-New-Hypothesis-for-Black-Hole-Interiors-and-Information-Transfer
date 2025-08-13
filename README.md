@@ -1,0 +1,1 @@
+# Ripped-Horizons-A-New-Hypothesis-for-Black-Hole-Interiors-and-Information-Transfer
